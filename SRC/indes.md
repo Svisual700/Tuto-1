@@ -8,3 +8,5 @@ suele entender generalmente hoy como poesía la poesía lírica. También es com
 textual» (esto es, como un tipo de texto).2​ Es frecuente, en la actualidad, utilizar el término «poesía»
 como sinónimo de «poesía lírica» o de «lírica», aunque, desde un punto de vista histórico y cultural, 
 esta es un subgénero o subtipo de la poesía.
+
+Cambios de la nueva rama
